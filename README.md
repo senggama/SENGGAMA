@@ -1,0 +1,2 @@
+# SENGGAMA
+1. Masuk Discord BUDAYAKAN salam.(Ketik Assalamu'alaikum atau selamat pagi atau hii smua sudah cukup, jika tidak salam selama 3 kali secara beturut - turut akan di kick) 2. Budayakan Meninggalkan EGO yang berlebihan (Ini bukan room yang egois hanya mementingkan dirinya sendiri) Ini tempat kebersamaan saling menjaga satu sama lain 3. Sebelum masuk Voice Buang jauh jauh sikap Baper. (Ini room khusus orang bermental TANGGUH)
